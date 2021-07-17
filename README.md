@@ -16,14 +16,11 @@ S.A.I is broken so then S.A.I should have asked by their names about acceleratio
 
 
 # Premiere Profrevha Organisation
-## Tripped Nitch
+## PROFREVHA ™
 ### Spy Agent Intelligent
 
-- PROFREVHA One
-- PROFREVHATm740
-
-Go find your submission on [Applicants](https://profrevhaone.simdif.com)
+Go find your admission on [Applicants](https://profrevha.simdif.com)
 
 ### Support or Contact
 
-Having trouble with admission? Check out our [website](https://trippednitch.simdif.com) or [contact support](https://profrevhatm740.chatango.com) and we’ll help you sort it out.
+Having trouble with submission? Check out our [website](https://spyagentintelligent.simdif.com) or [contact support](https://profrevhatm740.chatango.com) and we’ll help you sort it out.

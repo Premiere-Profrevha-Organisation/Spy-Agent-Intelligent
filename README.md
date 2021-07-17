@@ -1,37 +1,29 @@
-## Welcome to GitHub Pages
+## Spy Agent Intelligent
 
-You can use the [editor on GitHub](https://github.com/Premiere-Profrevha-Organisation/Spy-Agent-Intelligent/edit/main/README.md) to maintain and preview the content for your website in Markdown files.
+Division 4 of Premiere Profrevha Organisation
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+**SPY AGENT INTELLIGENT**
+Established by profrevhatm740 and PROFREVHA One to keep certifying location S.A.I.
 
-### Markdown
+ISSUED/March/29/2021
+PPO/52/167/267
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
+S.A.I must be the obediences
+S.A.I must have registered with codes which has prostration, year, and name.
+S.A.I is broken so then S.A.I should have asked by their names about acceleration/accelerated (es).*
 
-```markdown
-Syntax highlighted code block
+*Acceleration/accelerated (es) is one or more who is been accelerate on PROFREVHA One recruitment. All data is kept and secured on S.A.I division and Dent Department.
 
-# Header 1
-## Header 2
-### Header 3
 
-- Bulleted
-- List
+# Premiere Profrevha Organisation
+## Tripped Nitch
+### Spy Agent Intelligent
 
-1. Numbered
-2. List
+- PROFREVHA One
+- PROFREVHATm740
 
-**Bold** and _Italic_ and `Code` text
-
-[Link](url) and ![Image](src)
-```
-
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
-
-### Jekyll Themes
-
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/Premiere-Profrevha-Organisation/Spy-Agent-Intelligent/settings/pages). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
+Go find your submission on [Applicants](https://profrevhane.simdif.com)
 
 ### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://docs.github.com/categories/github-pages-basics/) or [contact support](https://support.github.com/contact) and we’ll help you sort it out.
+Having trouble with admission? Check out our [website](https://trippednitch.simdif.com) or [contact support](https://profrevhatm740.chatango.com) and we’ll help you sort it out.

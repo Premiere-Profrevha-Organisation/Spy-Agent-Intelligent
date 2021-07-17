@@ -22,7 +22,7 @@ S.A.I is broken so then S.A.I should have asked by their names about acceleratio
 - PROFREVHA One
 - PROFREVHATm740
 
-Go find your submission on [Applicants](https://profrevhane.simdif.com)
+Go find your submission on [Applicants](https://profrevhaone.simdif.com)
 
 ### Support or Contact
 
